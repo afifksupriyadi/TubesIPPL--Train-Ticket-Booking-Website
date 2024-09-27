@@ -7,10 +7,10 @@
 Disusun ole Kelompok G:
 
 - Afif Kurniawan Supriyadi – 1301223161
-- Ataullah Rafif Kiskapratama - 
+- Ataullah Rafif Kiskapratama - 1301223075
 - Christoper Daeng Kilantan  - 1301223402
 - Nazhmi Ahmad Fauzan - 1301223056
-- Muhammad Fathis Arraihan - - 1301220111
+- Muhammad Fathir Arraihan - 1301220111
 - Muhammad Ribhy Rizwanul Islam - 1301223449
 
 
